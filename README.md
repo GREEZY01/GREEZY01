@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GREEZY01
-- 🌱 I’m currently learning more advanced python and basic java script
-- 📫 How to reach me ...
+- 💩 idk
+- 📫 How to reach me ... ggeorgi64georgiev@gmail.com
 
 
 <!---
